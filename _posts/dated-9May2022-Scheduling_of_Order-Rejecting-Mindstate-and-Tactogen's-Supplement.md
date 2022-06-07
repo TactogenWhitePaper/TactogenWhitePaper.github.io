@@ -1,0 +1,1 @@
+[Scheduling of_Order Rejecting Mindstate and Tactogen's Supplement_fin.pdf](https://github.com/TactogenWhitePaper/TactogenWhitePaper.github.io/files/8857014/Scheduling.of_Order.Rejecting.Mindstate.and.Tactogen.s.Supplement_fin.pdf)
