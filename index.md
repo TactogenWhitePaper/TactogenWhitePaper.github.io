@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Up-to-date news and information regarding Tactogen can be found at https://tactogen.com/.
 
-Maybe say a some things about yourself.
+# Maybe say a some things about yourself.
 
-Or maybe what you plan to blog about.
+# Or maybe what you plan to blog about.
